@@ -1,0 +1,1 @@
+https://public.tableau.com/app/profile/sergio.pe.a/viz/final-dashboard-story/CUSTOMERSPERSTATE
